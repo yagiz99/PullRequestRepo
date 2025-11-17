@@ -139,4 +139,4 @@ Hatt was here. Thanks for showing me how to use Git. Keep up the good work :]
 
 Nikita was here! *-) Thanks for your lessons Stephen!
 
-
+Yagiz was here and, as always, learned a lot in your course! I really appreciate all your efforts and contributions to the community, Stephen!
